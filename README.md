@@ -12,7 +12,7 @@ back to work
 .
 .
 I have no clue jet, the custom old version i have is another codebase entirely, will keep something posted.
-keeping it save cuss noone wants to play out unwanted dollcet. fine by me, we all sort of like out butts well plugged butt not bleeding so.
+keeping it save cuss noone wants to play out unwanted dollcet. fine by me, we all sort of like our butt's well plugged butt not bleeding so.
 .
 .
 .
